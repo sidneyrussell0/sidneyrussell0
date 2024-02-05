@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @sidneyrussell0
+- 👋 Hi, I’m Sidney Russell !
 - 👀 I’m interested in reading and the beauty industry!
 - 🌱 I’m currently learning full-stack engineering.
 - 📫 How to reach me sidneyrussell58@gmail.com
