@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Sidney Russell !
-- 👀 I’m interested in reading and the beauty industry!
+- 👀 I’m interested in traveling, video games, and reading!
 - 🌱 I’m currently learning full-stack engineering.
 - 📫 How to reach me sidneyrussell58@gmail.com
 - ⚡ Fun fact: I'm a lash artist !
